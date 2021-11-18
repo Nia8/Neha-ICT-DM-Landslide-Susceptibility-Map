@@ -1,0 +1,1 @@
+# Neha-ICT-DM-Landslide-Susceptibility-Map
